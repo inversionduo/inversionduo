@@ -1,6 +1,6 @@
 hhheey hhii ^w^
 
-you can call me bad / bbh !!
+you can call me bad / avery !!
 
 he/him, but i dont mind other prns! [avoid fem terms :<]
 
