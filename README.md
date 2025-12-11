@@ -1,9 +1,9 @@
-hhheey hhii ^w^
+hh.heyy....
 
-you can call me bad / avery !!
+you can call me bad , avery , or wemmbu ^_^
 
-he/him, but i dont mind other prns! [avoid fem terms :<]
+he/him, but idm other prns [avoid fem terms,ok? ok..]
 
-im very socially anxious, but i still encourage interaction! im also very clingy and tend to have heavy mood swings, so just interaction with caution most times. please, tell me if i am upsetting you fyi. 
+vry socially anxious, but interaction is still encourage! also very clingy,, + tend to have hvy mood swings, so just iwcaution sumtimes. also like,, please tell me if i'm upsetting you??.  tthankz
 
-if u like.. any type of mcyt,,, arg, smp, etc.... THEN PLEASEE BMF OUDHFH !!!!!
+a.also, if u enjoy any type of mcyt,,, arg, smp, etc.... then like, bmf okau?.. :3
